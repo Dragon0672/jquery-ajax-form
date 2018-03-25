@@ -1,0 +1,1 @@
+<strong>La Guerre des étoiles</strong> est le titre français sous lequel le premier film de la saga Star Wars est sorti en 1977, et sous lequel la saga elle-même est initialement connue. À la suite du développement de l'univers Star Wars dans les années 2000, le film est ensuite renommé Star Wars, <strong>épisode IV : Un nouvel espoir</strong>.
